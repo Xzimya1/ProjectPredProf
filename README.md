@@ -13,3 +13,8 @@
 
 
 Инструкция в формате видео: 
+
+- Видео нашего проекта в RUTUBE:
+https://rutube.ru/video/private/ce593bc2d7d9a3ef66a0970b36590d27/?p=3tf_0JXNEbvwDRnR3fRzBw
+- Видео нашего проекта в VK видео:
+https://vkvideo.ru/video583761149_456239031?list=ln-yXNz8xIBjGFj9NsCTU
